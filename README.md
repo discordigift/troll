@@ -1,1 +1,1 @@
-I have added all the trolls imaginable to create this stuning absolutely amazing piece of artwork.
+I have painstakingly aggregated a comprehensive compendium of internet trolls, thus rendering a resplendent and utterly breathtaking artistic magnum opus.
